@@ -1,6 +1,6 @@
 # edurift.org
 ### ~~education rift~~
-Welcome to the official edurift.org Github Repository
+Welcome to the official edurift.org Github Organisation
 
 Here you can do the following:
 - Make feature requests
