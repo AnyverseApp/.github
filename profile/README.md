@@ -9,4 +9,4 @@ Here you can do the following:
 - Talk with staff regarding issues
 - And probably a few more things too??
 
-Anyway... Have fun learning, revising and studying on https://edurift.org🥳🥳
+Anyway... Have fun learning, revising and studying on https://edurift.org 🥳🥳
